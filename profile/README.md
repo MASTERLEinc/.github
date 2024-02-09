@@ -1,2 +1,2 @@
-##  Sop. This do be da Provider.
-Word on the streets are true... I do be... ✨providing✨.
+##  Sop. This do be da master of it all.
+Word on the streets are true... I do be... ✨mastering✨.
